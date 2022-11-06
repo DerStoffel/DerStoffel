@@ -1,6 +1,7 @@
 👋 Hi, I’m Chris,
 
 I love building great software with great people.
+
 I see myself as:
 
 ⛰️ Leadership nerd
