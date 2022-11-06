@@ -18,7 +18,7 @@ I strongly believe that the best results can be achieved together.
 
 #### 🚀 Organisational developer 
 
-I am a strong advocated of sytems thinking. Designing a structur for people to navigate in is one of my most important cornerstones to make great things happen.
+I am a strong advocate of sytems thinking. Designing a structur for people to navigate in is one of my most important cornerstones to make great things happen.
 
 #### 💻 Tech enthusiast
 
